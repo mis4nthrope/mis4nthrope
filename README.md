@@ -1,17 +1,11 @@
-<img width="1280" height="720" alt="22842" src="https://github.com/user-attachments/assets/4239540b-bd38-4f8a-81d0-790201ed8eaa" />
 
 
-## Details about.. Experiment 13 9 19 9 1
+## About me
 
 
 - OSDD 1-a
-- autistic
-- possibly freaky
-- socially active
-
-  proof of social interactions
-
-<img width="230" height="266" alt="Screenshot 2026-05-22 061501" src="https://github.com/user-attachments/assets/e556f917-7f72-4994-9c84-714290bd414d" />
+- Autistic
+- (I get freaky when I'm comfy, state if you're uncomfy with that and I also tend to overshare, lmk ok?)
 
 
 
@@ -36,27 +30,43 @@
 ## INTs!
 @pearlza will be prioritized(comf person and father)
 
-Tommyinnit- Techno, Phil, Tubbo, Ranboo, Wilburs iwc
+DSMP cosplays/skins
+- Techno int
+  massive comf!!
+- Philza int
+  also massive comf
+- Tommy int
+  i like talking, please talk to me!
+- Ranboo int
+- Tubbo int
+- Wilbur(wss + nwss) IWC. HEAVY IWC.
+- Shelby(sss + nsss) HEAVY IWC MOST OF YOU GUYS ARE SO WEIRD AND ID RATHER NOT GET INTO DRAMA!
 
-Philza- Techno(semi-romantic emerald duo / platonic emerald duo), Tommyinnit, Missa, Wilburs iwc
+Genshin cosplays/skins
+- Sumeru Cast, specifically 5spread
+- SETHOS INT!!
+  unless you ship Sethoscara and wanna force it onto me.
+- Scaras on iwc, ask please!!
+- Any int!!!
+  Freminet, Lyney, Lynettes, Tighnaris and Cynos, Kavehs and Alhaithams int!!!!
+- Haikaveh/Kavehtham shippers int
+  unless you're this people that think it's okay toyou'reize at least one of them or dehumanize them into a ship.
 
-Chayanne- Philza, Missa, Talluhlah, Tilin, Wilburs iwec
+Gachiakuta cosplays/skins
+- Zanka int
+  pls pls
+- Enjin int
+  huge comf
+- Riyo int
+- Rudo int
+  i need someone like you to talk to
+- Jabber IWC.
+  I mean it.
+- Zodyl int
+  fellow Zodyl enjoyer.. pls pls pls int
+- Cthoni int
+  yall are so cool pls
 
-Zanka- Cleaner HQ, any int
+## Duos and Groups I like from Minecraft Autism
 
-Tamsy- Cleaners HQ, ant int
-
-Zodyl- Raiders, any int
-
-Sethos- 4ggravate, Sumeru Cast
-
-Kaveh- 5pread, Sumeru Cast, Haikaveh/kavehtham
-
-Lyney, Lynette & Freminet - da siblings(ships dni(Lyney x Childe mainly))
-
-
-
-
-thank you for reading!
-
-<img width="736" height="413" alt="images" src="https://github.com/user-attachments/assets/1cc74097-acd8-4f39-b09b-a54a50e41c8f" />
+c!emerald duo enjoyer, c!angel duo enjoyer, c!bedrock bros enjoyer, c!pink duo enjoyer, c!syndicate enjoyer, c!disc duo hater(I don't like it D: sorry not sorry..)
