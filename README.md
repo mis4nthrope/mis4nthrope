@@ -20,8 +20,7 @@
 - toxic people in general
 - skin stealers
 - Sethoscara/anyship that includes sethos
-- Janka
-- c!sbi. JUST NO.
+- c!sbi. JUST NO. DON'T COME NEAR ME.
   
 
 ## Interests(fandoms)
@@ -39,31 +38,22 @@
 
 Tommyinnit- Techno, Phil, Tubbo, Ranboo, Wilburs iwc
 
-Philza- Techno(semi-romantic emerald duo/ platonic emerald duo), Tommyinnit, Missa, Wilburs iwc
+Philza- Techno(semi-romantic emerald duo / platonic emerald duo), Tommyinnit, Missa, Wilburs iwc
 
 Chayanne- Philza, Missa, Talluhlah, Tilin, Wilburs iwec
 
-Zanka- Rudo, Enjin, Cleaners HQ, Jabbers iwc
+Zanka- Cleaner HQ, any int
 
 Tamsy- Cleaners HQ, ant int
 
 Zodyl- Raiders, any int
 
-Sethos- 4ggravate, Sumeru Gang
+Sethos- 4ggravate, Sumeru Cast
 
-Kaveh- 5pread, Sumeru Gang, Haikaveh/kavehtham
+Kaveh- 5pread, Sumeru Cast, Haikaveh/kavehtham
 
-Lyney- Lynette & Freminet, Arles on iwc
+Lyney, Lynette & Freminet - da siblings(ships dni(Lyney x Childe mainly))
 
-Lynette- Lyney & Freminet
-
-Freminet- Lyney & Lynette
-
-Sys Alter Skins- anyone int but preferably friends
-
-
-
-## Do not force ships on me, you will be blocked.
 
 
 
