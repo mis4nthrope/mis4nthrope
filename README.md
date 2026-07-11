@@ -50,7 +50,7 @@ Genshin cosplays/skins
 - Any int!!!
   Freminet, Lyney, Lynettes, Tighnaris and Cynos, Kavehs and Alhaithams int!!!!
 - Haikaveh/Kavehtham shippers int
-  unless you're this people that think it's okay toyou'reize at least one of them or dehumanize them into a ship.
+  unless you're this people that think it's okay to feminize at least one of them or dehumanize them into a ship.
 
 Gachiakuta cosplays/skins
 - Zanka int
