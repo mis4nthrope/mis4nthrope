@@ -1,3 +1,4 @@
+<img width="473" height="442" alt="syndicate" src="https://github.com/user-attachments/assets/c95014b3-270f-46e1-84c2-58c3913789d0" />
 
 
 ## About me
