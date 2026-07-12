@@ -69,4 +69,6 @@ Gachiakuta cosplays/skins
 
 ## Duos and Groups I like from Minecraft Autism
 
-c!emerald duo enjoyer, c!angel duo enjoyer, c!bedrock bros enjoyer, c!pink duo enjoyer, c!syndicate enjoyer, c!disc duo hater(I don't like it D: sorry not sorry..)
+c!emerald duo enjoyer, c!angel duo enjoyer, c!bedrock bros enjoyer, c!pink duo enjoyer, c!syndicate enjoyer
+
+c!disc duo hater(I don't like it D: sorry not sorry..)
