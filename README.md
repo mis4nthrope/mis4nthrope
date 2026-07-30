@@ -72,3 +72,10 @@ Gachiakuta cosplays/skins
 c!emerald duo enjoyer, c!angel duo enjoyer, c!bedrock bros enjoyer, c!pink duo enjoyer, c!syndicate enjoyer
 
 c!disc duo hater(I don't like it D: sorry not sorry..)
+
+
+I absolutely adore Luka no one can change my mind about him he's a cutie patootie
+<img width="553" height="553" alt="17854063088739087815039383416972" src="https://github.com/user-attachments/assets/95e3d090-587a-407f-a345-89993cf8a429" />
+
+
+btw I don't roleplay I hate roleplay.. 
