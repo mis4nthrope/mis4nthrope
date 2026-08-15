@@ -13,7 +13,6 @@
 - Pedophiles, homophobes, islamophobes, anti-furries, anti-therians, anti-agere/petre
 - toxic people in general
 - skin stealers
-- Sethoscara/anyship that includes sethos
 - c!sbi. JUST NO. DON'T COME NEAR ME.
   
 
