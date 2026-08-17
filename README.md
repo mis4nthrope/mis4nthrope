@@ -1,11 +1,13 @@
 <img width="1920" height="1200" alt="20260421065539" src="https://github.com/user-attachments/assets/dd6fa7c1-021a-46dd-b429-d4d8e2cbd8eb" />
 
+c3 Sethos haver, Sethos fan, Sethos Enjoyed, Sethos Enthusiast
+
 ## About me
 
 
 - OSDD 1-a
 - Autistic
-- (I get freaky when I'm comfy, state if you're uncomfy with that and I also tend to overshare, lmk ok?)
+- I get freaky when I'm comfy, state if you're uncomfy with that and I also tend to overshare, lmk ok?
 
 
 
