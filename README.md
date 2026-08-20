@@ -4,7 +4,6 @@ c3 Sethos haver, Sethos fan, Sethos Enjoyer, Sethos Enthusiast
 
 <h1>About me</h1>
 
-
 - OSDD 1-a<br><br>
 - Autistic<br><br>
 - I get freaky when I'm comfy, state if you're uncomfy with that and I also tend to overshare, lmk ok?<br><br>
