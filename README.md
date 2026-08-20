@@ -2,7 +2,7 @@
 
 c3 Sethos haver, Sethos fan, Sethos Enjoyer, Sethos Enthusiast
 
-## About me
+<h1>About me</h1>
 
 
 - OSDD 1-a<br><br>
