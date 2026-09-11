@@ -43,14 +43,21 @@ C+H Encouraged, INT freely!
 •❅──────✧❅✦❅✧──────❅•
 
 
-Fandom int freely, just beware if I'm on iwc.
-
+# Fandom int freely, just beware if I'm on iwc.
+-Jabbers iwc.
 
 •❅──────✧❅✦❅✧──────❅•
 
 
 *୧୧ 𝓛𝓮𝓽 𝓶𝓮 𝓫𝓮 𝔂𝓸𝓾𝓻 𝓪𝓷𝓬𝓱𝓸𝓻 𝓽𝓸 𝓮𝓪𝓻𝓽𝓱 ୨୨*
-___
 <img width="565" height="353" alt="image" src="https://github.com/user-attachments/assets/89617cd8-2a10-4369-8928-d3430d0804a1" />
 
 artist:mochuuuu 
+
+
+___
+
+▬▬ι═══════𓃦═══════ι▬▬
+
+𝕾𝔢𝔱𝔥𝔬𝔰 𝔪𝔞𝔦𝔫, 𝔢𝔫𝔱𝔥𝔲𝔰𝔦𝔞𝔰𝔱, 𝔞𝔫𝔡 𝔣𝔞𝔫
+𝕾𝔢𝔱𝔥𝔬𝔰 𝔠3, 25𝔨 𝔥𝔦𝔤𝔥𝔢𝔰𝔱 𝔡𝔪𝔤, 𝔞𝔯 55
