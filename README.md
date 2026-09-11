@@ -7,7 +7,10 @@ I love my father, Cap.
 ***Always w2i*** when I sit with them!
 you'll get ignored by both of us. I won't care what you say unless it's a slur.
 
-<img width="571" height="324" alt="image" src="https://github.com/user-attachments/assets/d66ce30a-7410-470f-84a8-aaa5a69feb51" />
+<img width="600" height="338" alt="image" src="https://github.com/user-attachments/assets/875e3add-2847-4486-9356-0c4f20b9a805" />
+
+artist:shiozawahosho
+
 
 ✩*⢄⢁✧ --------- ✧⡈⡠*✩
 
@@ -50,4 +53,4 @@ Fandom int freely, just beware if I'm on iwc.
 ___
 <img width="565" height="353" alt="image" src="https://github.com/user-attachments/assets/89617cd8-2a10-4369-8928-d3430d0804a1" />
 
-𝓦𝓱𝓪𝓽 𝓱𝓪𝓹𝓹𝓮𝓷𝓮𝓭 𝓪𝓫𝓸𝓾𝓽 𝓼𝓮𝓪𝓻𝓬𝓱𝓲𝓷𝓰 𝓯𝓸𝓻 𝔂𝓸𝓾𝓻 𝓹𝓾𝓻𝓹𝓸𝓼𝓮? 
+artist:mochuuuu 
