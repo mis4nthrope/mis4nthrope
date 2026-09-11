@@ -1,4 +1,5 @@
 · · ─────── ·𖥸· ─────── · ·
+
 I go by Misia, Misi, Sia! I am either the most social person you've ever met or the worst case of misanthrope(beware, I'm scared of most people).
 
 I love my father, Cap.
@@ -39,7 +40,7 @@ Fandom int freely, just beware if I'm on iwc.
 •❅──────✧❅✦❅✧──────❅•
 
 
-*୧୧𝓛𝓮𝓽 𝓶𝓮 𝓫𝓮 𝔂𝓸𝓾𝓻 𝓪𝓷𝓬𝓱𝓸𝓻 𝓽𝓸 𝓮𝓪𝓻𝓽𝓱”୨୨*
+*୧୧ 𝓛𝓮𝓽 𝓶𝓮 𝓫𝓮 𝔂𝓸𝓾𝓻 𝓪𝓷𝓬𝓱𝓸𝓻 𝓽𝓸 𝓮𝓪𝓻𝓽𝓱 ୨୨*
 ___
 <img width="565" height="353" alt="image" src="https://github.com/user-attachments/assets/89617cd8-2a10-4369-8928-d3430d0804a1" />
 
