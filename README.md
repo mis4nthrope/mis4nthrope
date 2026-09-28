@@ -1,4 +1,14 @@
 · · ─────── ·𖥸· ─────── · ·
+𝐶𝑜𝑛𝑠𝑡𝑒𝑙𝑙𝑎𝑡𝑖𝑜𝑛𝑠 - 𝑇ℎ𝑒 𝑂ℎ 𝐻𝑒𝑙𝑙𝑜𝑠
+
+୧୧𝑨𝒏𝒅 𝑰 𝒇𝒆𝒆𝒍 𝒎𝒚 𝒃𝒍𝒐𝒐𝒅 𝒑𝒐𝒖𝒏𝒅𝒊𝒏𝒈 𝒍𝒊𝒌𝒆 𝒕𝒉𝒆 𝒃𝒆𝒂𝒕 𝒐𝒇 𝒂 𝒅𝒓𝒖𝒎
+𝐶𝑎𝑢𝑠𝑒 𝑙𝑖𝑘𝑒 𝑐𝑜𝑛𝑠𝑡𝑒𝑙𝑙𝑎𝑡𝑖𝑜𝑛𝑠
+𝑎 𝑚𝑖𝑙𝑙𝑖𝑜𝑛 𝑦𝑒𝑎𝑟𝑠 𝑎𝑤𝑎𝑦
+𝐸𝑣𝑒𝑟𝑦 𝑔𝑜𝑜𝑑 𝑖𝑛𝑡𝑒𝑛𝑡𝑖𝑜𝑛, 𝑒𝑣𝑒𝑟𝑦 𝑔𝑜𝑜𝑑 𝑖𝑛𝑡𝑒𝑛𝑡𝑖𝑜𝑛
+𝐼𝑠 𝑖𝑛𝑡𝑒𝑟𝑝𝑜𝑙𝑎𝑡𝑖𝑜𝑛, 𝑎 𝑙𝑖𝑛𝑒 𝑤𝑒 𝑑𝑟𝑒𝑤 𝑖𝑛 𝑡ℎ𝑒 𝑎𝑟𝑟𝑎𝑦
+
+𝑳𝒐𝒐𝒌𝒊𝒏𝒈 𝒇𝒐𝒓 𝒕𝒉𝒆 𝒇𝒂𝒄𝒆𝒔
+𝑳𝒐𝒐𝒌𝒊𝒏𝒈 𝒇𝒐𝒓 𝒕𝒉𝒆 𝒔𝒉𝒂𝒑𝒆𝒔 𝒊𝒏 𝒕𝒉𝒆 𝒔𝒊𝒍𝒆𝒏𝒄𝒆୨୨
 
 I go by Misia, Misi, Sia! I am either the most social person you've ever met or the worst case of misanthrope(beware, I'm scared of most people).
 
@@ -49,7 +59,6 @@ C+H Encouraged, INT freely!
 •❅──────✧❅✦❅✧──────❅•
 
 
-*୧୧ 𝓛𝓮𝓽 𝓶𝓮 𝓫𝓮 𝔂𝓸𝓾𝓻 𝓪𝓷𝓬𝓱𝓸𝓻 𝓽𝓸 𝓮𝓪𝓻𝓽𝓱 ୨୨*
 <img width="565" height="353" alt="image" src="https://github.com/user-attachments/assets/89617cd8-2a10-4369-8928-d3430d0804a1" />
 
 artist:mochuuuu 
