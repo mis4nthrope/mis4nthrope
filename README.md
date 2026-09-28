@@ -76,7 +76,21 @@ artist:mochuuuu
 
 ___
 
-▬▬ι═══════𓃦═══════ι▬▬
+ι═══════𓃦═══════ι
 
-𝕾𝔢𝔱𝔥𝔬𝔰 𝔪𝔞𝔦𝔫, 𝔢𝔫𝔱𝔥𝔲𝔰𝔦𝔞𝔰𝔱, 𝔞𝔫𝔡 𝔣𝔞𝔫
-𝕾𝔢𝔱𝔥𝔬𝔰 𝔠3, 25𝔨 𝔥𝔦𝔤𝔥𝔢𝔰𝔱 𝔡𝔪𝔤, 𝔞𝔯 55
+# Glaze
+
+[Pearlza](:https://github.com/pearlza) 
+will always be one of the most important people in my life. I can guarantee you that we're literally parent and child.
+
+no you don't understand, we've bonded so well I genuinely believe they are my parental figure
+
+if you can't respect that we both share the same beliefs, or at least similar tastes, it's best you stay away from both of us since you will always hear from me the title "dad" or "father" and how much they mean to me.
+
+╞═════𖠁♥𖠁═════╡
+
+# Honorable Mentions
+-they don't have Git/never gave me their Git
+
+@red, @jimby
+
