@@ -80,7 +80,7 @@ ___
 
 # Glaze
 
-[Pearlza]<:https://github.com/pearlza> 
+[Pearlza](<https://github.com/pearlza>) 
 will always be one of the most important people in my life. I can guarantee you that we're literally parent and child.
 
 no you don't understand, we've bonded so well I genuinely believe they are my parental figure
