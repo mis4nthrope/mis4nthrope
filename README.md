@@ -20,7 +20,7 @@
 ──────⊹⊱✫⊰⊹──────
 
 
-I go by Misia, Misi, Sia! I am either the most social person you've ever met or the worst case of misanthrope(beware, I'm scared of most people).
+I go by Misia(*Me-sea-ah* preferably, Mee-sha is fine), Misi, and Sia! I am either the most social person you've ever met or the worst case of misanthrope(beware, I'm scared of most people).
 
 I love my father, Cap.
 
