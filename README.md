@@ -94,3 +94,6 @@ if you can't respect that we both share the same beliefs, or at least similar ta
 
 @red, @jimby
 
+╞═════𖠁𖥸𖠁═════╡
+
+[Playlist](https://open.spotify.com/playlist/2RKbn78CJemelx4TKzCg7Z?si=YOHGh6Z8RQ6yaiaVYC2HUQ&utm_source=copy-link&pi=RuKxQORmT7qpU)
