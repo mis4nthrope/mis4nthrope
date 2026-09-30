@@ -32,9 +32,6 @@ you'll get ignored by both of us. I won't care what you say unless it's a slur.
 artist:shiozawahosho
 
 
-✩*⢄⢁✧ --------- ✧⡈⡠*✩
-
-୧୧ 𝓨𝓸𝓾 𝓴𝓷𝓸𝔀 𝓶𝓮 𝓵𝓲𝓴𝓮 𝓘'𝓶 𝓹𝓪𝓻𝓽 𝓸𝓯 𝔂𝓸𝓾, 𝓽𝓱𝓪𝓽'𝓼 𝔀𝓱𝓪𝓽 𝓶𝓪𝓴𝓮𝓼 𝓶𝓮 𝔀𝓪𝓷𝓽 𝓽𝓸 𝓼𝓽𝓪𝔂 𝓵𝓸𝓷𝓰𝓮𝓻. 𝓘𝓽'𝓼 𝓪𝓵𝔀𝓪𝔂𝓼 𝓫𝓮𝓮𝓷 𝓯𝓸𝓻 𝔂𝓸𝓾. ୨୨
 
 ═════════•°•⚠️•°•═════════
 
@@ -86,6 +83,9 @@ will always be one of the most important people in my life. I can guarantee you 
 no you don't understand, we've bonded so well I genuinely believe they are my parental figure
 
 if you can't respect that we both share the same beliefs, or at least similar tastes, it's best you stay away from both of us since you will always hear from me the title "dad" or "father" and how much they mean to me.
+
+ANYWAYSSSS
+**if you're a straight woman, don't talk to me, I'm GAY.**
 
 ╞═════𖠁♥𖠁═════╡
 
