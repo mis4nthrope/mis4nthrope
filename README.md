@@ -1,3 +1,9 @@
+# SETHOS FAN
+
+<img width="704" height="1120" alt="1000046253" src="https://github.com/user-attachments/assets/64d5200b-2f9f-40a7-897b-7225e776e075" />
+
+I AM ***THE*** SETHOS FAN, DON'T JUDGE ME I LOVE HIM
+
 · · ─────── ·𖥸· ─────── · ·
 𝐶𝑜𝑛𝑠𝑡𝑒𝑙𝑙𝑎𝑡𝑖𝑜𝑛𝑠 - 𝑇ℎ𝑒 𝑂ℎ 𝐻𝑒𝑙𝑙𝑜𝑠
 
