@@ -1,3 +1,18 @@
+ι═══════𓃦═══════ι
+
+# Glaze
+
+[Pearlza](<https://github.com/pearlza>) 
+will always be one of the most important people in my life. I can guarantee you that we're literally parent and child.
+
+no you don't understand, we've bonded so well I genuinely believe they are my parental figure
+
+if you can't respect that we both share the same beliefs, or at least similar tastes, it's best you stay away from both of us since you will always hear from me the title "dad" or "father" and how much they mean to me.
+
+-dad why are you quite literally [father(ama)](<https://github.com/CapAmarav/CapAmarav>) now
+
+Fate is a strange thing.
+
 · · ─────── ·𖥸· ─────── · ·
 
 𝐶𝑜𝑢𝑙𝑑 ℎ𝑎𝑣𝑒 𝑏𝑒𝑒𝑛 𝑚𝑒- 𝑇ℎ𝑒 𝑆𝑡𝑟𝑢𝑡𝑠
@@ -80,20 +95,7 @@ artist:mochuuuu
 
 ___
 
-ι═══════𓃦═══════ι
 
-# Glaze
-
-[Pearlza](<https://github.com/pearlza>) 
-will always be one of the most important people in my life. I can guarantee you that we're literally parent and child.
-
-no you don't understand, we've bonded so well I genuinely believe they are my parental figure
-
-if you can't respect that we both share the same beliefs, or at least similar tastes, it's best you stay away from both of us since you will always hear from me the title "dad" or "father" and how much they mean to me.
-
--dad why are you quite literally [father(ama)](<https://github.com/CapAmarav/CapAmarav>) now
-
-Fate is a strange thing.
 
 ╞═════𖠁♥𖠁═════╡
 
