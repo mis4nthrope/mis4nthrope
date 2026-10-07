@@ -93,8 +93,9 @@ no you don't understand, we've bonded so well I genuinely believe they are my pa
 
 if you can't respect that we both share the same beliefs, or at least similar tastes, it's best you stay away from both of us since you will always hear from me the title "dad" or "father" and how much they mean to me.
 
-ANYWAYSSSS
-**if you're a straight woman, don't talk to me, I'm GAY.**
+-dad why are you quite literally [father(ama)](<https://github.com/pearlza>) now
+
+Fate is a strange thing.
 
 ╞═════𖠁♥𖠁═════╡
 
@@ -105,4 +106,4 @@ ANYWAYSSSS
 
 ╞═════𖠁𖥸𖠁═════╡
 
-[Playlist](https://open.spotify.com/playlist/2RKbn78CJemelx4TKzCg7Z?si=YOHGh6Z8RQ6yaiaVYC2HUQ&utm_source=copy-link&pi=RuKxQORmT7qpU)
+[Chimes(Spotify playlist)](https://open.spotify.com/playlist/2RKbn78CJemelx4TKzCg7Z?si=YOHGh6Z8RQ6yaiaVYC2HUQ&utm_source=copy-link&pi=RuKxQORmT7qpU)
