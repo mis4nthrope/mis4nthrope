@@ -1,16 +1,17 @@
 · · ─────── ·𖥸· ─────── · ·
+
 𝐶𝑜𝑢𝑙𝑑 ℎ𝑎𝑣𝑒 𝑏𝑒𝑒𝑛 𝑚𝑒- 𝑇ℎ𝑒 𝑆𝑡𝑟𝑢𝑡𝑠
 
-୧୧**Don't wanna live as an unsung melody**
+୧୧**Don't wanna live as an unsung melody**,
 
-I'd rather listen to the silent telling me
+I'd rather listen to the silent telling me.
 
-I can't hear you, I won't fear you
+I can't hear you, I won't fear 𝑦𝑜𝑢. 
 
 
 **Don't wanna wake up on a monday morning**,
 
-The thought of work is getting my skin crawling
+The thought of work is getting my skin crawling.
 
 I can't fear you, I don't hear you now!୨୨
 
