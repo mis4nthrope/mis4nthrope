@@ -19,7 +19,7 @@ Fate is a strange thing.
 
 ୧୧**Don't wanna live as an unsung melody**,
 
-I'd rather listen to the silent telling me.
+I'd rather listen to the silence telling me.
 
 I can't hear you, I won't fear 𝑦𝑜𝑢. 
 
